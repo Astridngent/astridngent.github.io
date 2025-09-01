@@ -1,11 +1,3 @@
-# 
-
-# 
-
-# 
-
-# 
-
 # Feminism and the Transfeminine
 
 ## Exploring schisms between feminism and transfeminism
