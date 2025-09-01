@@ -4,27 +4,27 @@
 
 *Astrid*
 
-[**Introduction	2**](#introduction)
+[**Introduction**	](#introduction)
 
-[**Clarification of terminology	3**](#clarification-of-terminology)
+[**Clarification of terminology**	](#clarification-of-terminology)
 
-[Transgender and transsexual	3](#transgender-and-transsexual)
+[Transgender and transsexual	](#transgender-and-transsexual)
 
-[Transfeminine/transmasculine	4](#transfeminine/transmasculine)
+[Transfeminine/transmasculine	](#transfeminine/transmasculine)
 
-[Transmisogyny	4](#transmisogyny)
+[Transmisogyny	](#transmisogyny)
 
-[**Central analysis:	5**](#central-analysis:)
+[**Central analysis:**	](#central-analysis:)
 
-[Marked by the phallus	5](#marked-by-the-phallus)
+[Marked by the phallus	](#marked-by-the-phallus)
 
-[The transfeminine subject and transfeminine labour	8](#the-transfeminine-subject-and-transfeminine-labour)
+[The transfeminine subject and transfeminine labour	](#the-transfeminine-subject-and-transfeminine-labour)
 
-[Transfeminine self Identity	12](#transfeminine-self-identity)
+[Transfeminine self Identity	](#transfeminine-self-identity)
 
-[Conflict and Synthesis	14](#conflict-and-synthesis)
+[Conflict and Synthesis	](#conflict-and-synthesis)
 
-[**Bibliography	20**](#bibliography)
+[**Bibliography**	](#bibliography)
 
 # Introduction {#introduction}
 
