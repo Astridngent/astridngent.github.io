@@ -7,7 +7,7 @@ This is my silly little place where i post all the writings i want people to rea
 ## Written Work
 
 * [Tardigrade](Tardigrade)
-* [Feminism and the Transfeminine](Feminism\_and\_the\_Transfeminine)
+* [Feminism and the Transfeminine](Feminism_and_the_Transfeminine)
 
 
 
