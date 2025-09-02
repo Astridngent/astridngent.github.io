@@ -1,6 +1,6 @@
 # Recuperation and Transfeminine Trauma Narratives in Contemporary Literature
 
-## Ase Faun Davey
+## 
 
 
 
