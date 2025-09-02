@@ -15,13 +15,13 @@ This is my silly little place where i post all the writings i want people to rea
 
 
 
-https://blog.polly.computer/
+<https://blog.polly.computer/>
 
-https://pghrt.diy/
+<https://pghrt.diy/>
 
 
 
 \## Support me
 
-https://ko-fi.com/astringentastrid
+<https://ko-fi.com/astringentastrid>
 
