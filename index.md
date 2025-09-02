@@ -1,17 +1,17 @@
-\# ◬♡Astrid♡◬
+## ◬♡Astrid♡◬
 
 This is my silly little place where i post all the writings i want people to read, and maybe other projects.
 
 
 
-\## Written Work
+## Written Work
 
-* \[Tardigrade](Tardigrade)
-* \[Feminism and the Transfeminine](Feminism\_and\_the\_Transfeminine)
+* [Tardigrade](Tardigrade)
+* [Feminism and the Transfeminine](Feminism\_and\_the\_Transfeminine)
 
 
 
-\## Other good things
+## Other good things
 
 
 
@@ -21,7 +21,7 @@ This is my silly little place where i post all the writings i want people to rea
 
 
 
-\## Support me
+## Support me
 
 <https://ko-fi.com/astringentastrid>
 
