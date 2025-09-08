@@ -5,7 +5,6 @@ This is my silly little place where i post all the writings i want people to rea
 
 
 ## Written Work
-* [T4T](T4T)
 * [Tardigrade](Tardigrade)
 * [Feminism and the Transfeminine](Feminism_and_the_Transfeminine)
 * [Recuperation and Transfeminine Trauma Narratives in Contemporary Literature](Recuperation_and_Transfeminine_Trauma_Narratives_in_Contemporary_Literature)
