@@ -1,2 +1,2 @@
-!\[T4T](T4T.PNG)
+[T4T](T4T.PNG)
 
