@@ -1,2 +1,2 @@
-![A modified version of the tarot card 'The Lovers' by A. E. Waite and P. C. Smith, it has been made into a high contrast black and white image with few vaues and edited to make both subjects trans women. the card number has been replaced with the slogan T4T](/T4T/image.PNG)
+![test](/T4T/image.PNG)
 
