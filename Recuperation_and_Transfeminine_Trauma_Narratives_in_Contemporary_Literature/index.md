@@ -193,7 +193,5 @@ Serano, Julia. 2007. *Whipping Girl.* Seal Press.
 
 Stryker, Susan. 2011. “My Words to Victor Frankenstein. Above the Village of Chamounix - Performing Transgender Rage”. *Kvinder, Køn \& Forskning*, nr. 3-4 (juni). [https://doi.org/10.7146/kkf.v0i3-4.28037](https://doi.org/10.7146/kkf.v0i3-4.28037).
 
-\[^1]:
 
-\[^2]:
 
