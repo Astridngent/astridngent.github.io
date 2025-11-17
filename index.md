@@ -1,6 +1,6 @@
 ## ◬♡Astrid♡◬
 
-This is my silly little place where i post all the writings i want people to read, projects I am working on, and things i have made. Yes this is published under a pseudonym. 
+This is corner of the internet where I post all the writings i want people to read, projects I am working on, and things I have made. A large part of my writings will focus on transfeminism as it is a central part of my life, but I will also be uploading blogs on other topics too.
 
 ## Written Work
 * [Tardigrade](Tardigrade)
@@ -8,6 +8,7 @@ This is my silly little place where i post all the writings i want people to rea
 * [Recuperation and Transfeminine Trauma Narratives in Contemporary Literature](Recuperation_and_Transfeminine_Trauma_Narratives_in_Contemporary_Literature)
 * [The 10 Point Program for Transsexual Liberation](The 10 Point Program for Transsexual Liberation)
 * [On Transgender Consent](On Transgender Consent)
+* [A Brief Anthropological Study of The Cisfatalist](A Brief Anthropological Study of The Cisfatalist)
 
 ## Visual Work
 * [T4T](T4T)
