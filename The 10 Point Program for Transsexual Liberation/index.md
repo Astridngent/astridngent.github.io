@@ -1,4 +1,4 @@
-##The 10 Point Program for Transsexual Liberation
+## The 10 Point Program for Transsexual Liberation
 
 The following demands are reasonable and actionable demands that seek to improve the material conditions of transsexual people globally. We find these demands to be justified in the face of extreme transsexual oppression.
 
