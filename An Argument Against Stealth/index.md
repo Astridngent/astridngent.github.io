@@ -1,4 +1,4 @@
-\## An Argument Against Stealth
+## An Argument Against Stealth
 
 
 
