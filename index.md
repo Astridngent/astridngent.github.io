@@ -1,36 +1,19 @@
-## Astrid
+# Hi, I'm Astrid
+and welcome to my little corner of the internet!! Here I have hella stuff such as my crafting projects, transfemminist writings, artistic works, and fictional writings. Feel free to poke around on this website and see what you can find, also feel free to check out my [bluesky](https://bsky.app/profile/astringent.darkwo.ke) where I post like an insane gremlin. If you're feeling generous you can also throw me a tip on my [ko-fi](<https://ko-fi.com/astringentastrid>).
 
-This is corner of the internet where I post all the writings i want people to read, projects I am working on, and things I have made. A large part of my writings will focus on transfeminism as it is a central part of my life, but I will also be uploading blogs on other topics too.
+## ◬ [Fiction](Fiction)
 
-## Written Work
-◬ [Tardigrade](Tardigrade)
+## ◬ [Transfemminism](Transfemminism)
 
-◬ [Punch Your Friends and Loved Ones](Punch Your Friends and Loved Ones)
+## ◬ [Visual Work](Visual Work)
 
-## Transfemminism
-◬ [An Argument Against Stealth](An Argument Against Stealth)
-
-◬ [The 10 Point Program for Transsexual Liberation](The 10 Point Program for Transsexual Liberation)
-
-◬ [Feminism and the Transfeminine](Feminism_and_the_Transfeminine)
-
-◬ [Recuperation and Transfeminine Trauma Narratives in Contemporary Literature](Recuperation_and_Transfeminine_Trauma_Narratives_in_Contemporary_Literature)
-
-◬ [On Transgender Consent](On Transgender Consent)
-
-◬ [A Brief Anthropological Study of The Cisfatalist](A Brief Anthropological Study of The Cisfatalist)
-
-## Visual Work
-◬ [T4T](T4T)
+## ◬ [Food and Drink Recommendations](Food and Drink Recommendations)
 
 ## Other good things
+Please go check out these links, they're all great!
+
 ◬ <https://blog.polly.computer/>
 
 ◬ <https://pghrt.diy/>
 
 ◬ <http://ava.glashack.space>
-
-## Support me
-
-◬ <https://ko-fi.com/astringentastrid>
-

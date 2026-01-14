@@ -6,5 +6,5 @@ This belt was made for a friend of mine who who had a shitty and disintegrated g
 
 
 
-\[A curled up black leather belt that has two layers of grommets running its length](belt.webp)
+![A curled up black leather belt that has two layers of grommets running its length](belt.webp)
 
