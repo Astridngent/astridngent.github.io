@@ -16,6 +16,12 @@ Listen, I know it's a lot to also start a food recommendation page on here, but 
 
 ◬ [Bear Slice](Bear Slice)
 
+◬ [Torvets Kebab}(Torvets Kebab)
+
+◬ [The Pond](The Pond)
+
+◬ [Alice](Alice)
+
 ## Hamilton, Ontario
 ◬ [Shehnai](Shehnai)
 
