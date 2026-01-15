@@ -19,5 +19,3 @@ Please go check out these links, they're all great!
 ◬ <https://pghrt.diy/>
 
 ◬ <http://ava.glashack.space>
-
-<body style="background-color:rgb(50,50,50);">
