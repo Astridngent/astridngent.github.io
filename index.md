@@ -5,9 +5,11 @@ and welcome to my little corner of the internet!! Here I have hella stuff such a
 
 ## ◬ [Fiction](Fiction)
 
-## ◬ [Transfemminism](Transfemminism)
+## ◬ [Transfeminism](Transfeminism)
 
 ## ◬ [Visual Work](Visual Work)
+
+## ◬ [Astrid Talks About Media](Media Reviews)
 
 ## ◬ [Food and Drink Recommendations](Food and Drink Recommendations)
 
