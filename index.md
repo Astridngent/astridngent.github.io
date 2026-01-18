@@ -19,3 +19,7 @@ Please go check out these links, they're all great!
 ◬ <https://pghrt.diy/>
 
 ◬ <http://ava.glashack.space>
+
+◬ <https://katea.gay/>
+
+◬ <https://www.selfawaresoup.com/>

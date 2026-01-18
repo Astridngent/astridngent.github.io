@@ -1,0 +1,13 @@
+## Stag Dance, Torrey Peters
+
+I don't think I can adequately communicate my thoughts on this anthology in a single review. Within the book, Peters took the time to examine different kinds of transfeminine traumas through a neo-gothic lens. 
+
+By exploring transfemininity through the four different narratives present in the book the reader is forced to look at transfemininity as the intrusive gothic force, and grapple with the epistemological position of transfemininity. Infect Your Friends and Loved Ones the material conditions for "trans-ness" are the primary intrusion. Through this universalization of transfeminine needs and the trauma experienced by transfeminine people, the audience is invited to empathise with the plight of trans women. I also find that in this invitation to empathise the phrase "hurt people hurt people" becomes relevant as there is a guttural mirroring of how transfeminine people hurt each other, but also about how we can come together to heal each other.
+
+With The Chaser transfeminine intrusion is instead framed through a lens of jealousy and betrayal at someone else's self actualisation. The protagonist is a literary reflection on how the closet can destroy your life, things collapse around the protagonist as he lashes out, and yet one cannot help but sympathise.
+
+Stag Dance tells us a story about loggers, it revolves around real world traditions that took place in the American mountains where old growth forests covered the landscape. The magic of the setting becomes real, affecting the story, which at it's core is a story about a ball and womanhood as something desirable, and how actually desiring transition turns one into a monster in the eyes of man. What makes this story explicitly gothic is how it makes something old the intruding force, and that intruding force is directly related to transition and transfemininity.
+
+Finally we have The Masker. It is no coincidence that this story is the final story of the book, a direct commentary on the comparative allure of transfemininity and assimilation into what society expects trans women to do instead. The most emotionally devastating of the four stories, it speaks directly to how much easier it is to not be a woman, and the pain that trans women endure just to exist.
+
+Ultimately each story we see is one of transfemininity refracted through a different lens in a way that gives the reader an empathetic opening into the lives of transfeminine people. Peter's writing abilities truly shine here and the book is definitely worth your time.
