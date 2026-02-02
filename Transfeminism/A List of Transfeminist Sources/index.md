@@ -3,14 +3,13 @@
 
 ### ◬ Avalos, Susana. (2024). A Comparative Content Analysis of the News Media Framing of Trans Homicide Between Trans Men and Trans Women in the U.S. from 2016 to 2022. _Journal of Interpersonal Violence_, 39(11-12), 2602-2628. [https://doi-org.ep.fjernadgang.kb.dk/10.1177/08862605231220014](https://doi-org.ep.fjernadgang.kb.dk/10.1177/08862605231220014) 
 
-### ◬ Bellweather, Mira. 2010. _Fucking trans women_, #0. https://payhip.com/b/hRtK
+### ◬ Bellweather, Mira. 2010. _Fucking trans women_, #0. [https://payhip.com/b/hRtK](https://payhip.com/b/hRtK)
 
-### ◬ Bhatt, Talia. 2023. _Trans/Rad/Fem_ https://taliabhattwrites.substack.com
+### ◬ Bhatt, Talia. 2023. _Trans/Rad/Fem_ [https://taliabhattwrites.substack.com](https://payhip.com/b/hRtK)
 
 ### ◬ Coates, jennifer. 2016. _I Am A Transwoman. I Am In The Closet. I Am Not Coming Out._ [https://medium.com/@jencoates/i-am-a-transwoman-i-am-in-the-closet-i-am-not-coming-out-4c2dd1907e42](https://medium.com/@jencoates/i-am-a-transwoman-i-am-in-the-closet-i-am-not-coming-out-4c2dd1907e42) 
 
-### ◬ Heaney, Emma. 2024. _Feminism Against Cisness_ ed. Duke University Press.
-[https://transreads.org/wp-content/uploads/2024/07/2024-07-02_66847014b6820_EmmaHeaneyeditor-FeminismagainstCisnessASTERISK-DukeUniversityPressBooks2024.pdf](https://transreads.org/wp-content/uploads/2024/07/2024-07-02_66847014b6820_EmmaHeaneyeditor-FeminismagainstCisnessASTERISK-DukeUniversityPressBooks2024.pdf) 
+### ◬ Heaney, Emma. 2024. _Feminism Against Cisness_ ed. Duke University Press. [https://transreads.org/wp-content/uploads/2024/07/2024-07-02_66847014b6820_EmmaHeaneyeditor-FeminismagainstCisnessASTERISK-DukeUniversityPressBooks2024.pdf](https://transreads.org/wp-content/uploads/2024/07/2024-07-02_66847014b6820_EmmaHeaneyeditor-FeminismagainstCisnessASTERISK-DukeUniversityPressBooks2024.pdf) 
 
 ### ◬ McConnell EA, Odahl-Ruan CA, Kozlowski C, Shattell M, Todd NR. “Trans women and Michfest: An ethnophenomenology of attendees' experiences.” _Journal of lesbian studies_ vol. 20,1 (2016): 8-28. doi:10.1080/10894160.2015.1076234 
   
