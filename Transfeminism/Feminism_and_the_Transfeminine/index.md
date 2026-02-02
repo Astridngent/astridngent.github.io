@@ -178,8 +178,7 @@ Bhatt, Talia. 2024. *Understanding Transmisogyny, Part Three: Constructing the T
 
 Butler, Judith. 2006. *Gender troubles.* London: Routledge
 
-Combahee River Collective. 1977. *The Combahee River Collective*  
-*Statement*
+Combahee River Collective. 1977. *The Combahee River Collective Statement*
 
 Lee, Mark, Miranda, Liam, Hadfelt, Katalina,Mazeitis, Jake, Winger, Gabrielle. 2018. *A National Epidemic: Fatal Anti-Transgender Violence in America in 2018*. Human Right Campaign Foundation.
 
