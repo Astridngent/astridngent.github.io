@@ -3,7 +3,7 @@ Do you want to hear my opinion on nooks? Movies? TV shows? That magazine I read 
 
 ## Books
 ### 𐂂 [Stag Dance, Torrey Peters](Stag Dance)
-### ◬ [Kitchen Confidential](Kitchen Confidential)
+### ◬ [Kitchen Confidential, Anthony Bourdain](Kitchen Confidential)
 
 ## Movies
 ### ◬ [Smoke(1995)](Smoke)
