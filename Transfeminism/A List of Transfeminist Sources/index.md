@@ -44,7 +44,7 @@ Here is my list of feminist readings that help to develop a strong foundation fo
 
 ### ◬ Firestone, Sulamith. 1970. _Dialectic of Sex._ William Morrow and co.
 
-### ◬ Wittig, Monique. 1975. The Lesbian Body. New york: William Morrow and Company
+### ◬ Wittig, Monique. 1975. _The Lesbian Body._ New york: William Morrow and Company
 
 ### ◬ Woolfe, Virginia. 1929. _A Room of Ones Own._ Hogarth Press.
 
