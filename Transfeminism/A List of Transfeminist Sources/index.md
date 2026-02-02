@@ -21,7 +21,7 @@
 ### ◬ Peterson, Jules Gil. 2024. _A Short History of Trans Misogyny._ Blackstone Publishing, Inc.
 
 ### ◬ Porpentine. 2015 “Hot Allostatic Load” _The New Inquiry_, May 11, 2015. [https://thenewinquiry.com/hot-allostatic-load/](https://thenewinquiry.com/hot-allostatic-load/)
-### !! IMPORTANT !!: 
+**!! IMPORTANT !!:**
 H.A.L. is a tumultuous text as it has been used to smokescreen sexual abuse and assault, I still recommend reading this essay as it is an incredibly informative _trauma_ literature work that gives a good insight into the psychological stress that the author was experiencing at the height of GamerGate. It also touches on the concept of transfeminine labour and disposability as a parrales to racialised and feminised labour and disposability. If you decide to work with this source be aware of how it is used culturally.
 
 ### ◬ Serano, Julia. 2007. _Whipping Girl: A Transsexual Woman on Sexism and the Scapegoating of Femininity._ Seal Press.
