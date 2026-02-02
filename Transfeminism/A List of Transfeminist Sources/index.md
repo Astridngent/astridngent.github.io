@@ -31,6 +31,8 @@ H.A.L. is a tumultuous text as it has been used to smokescreen sexual abuse and 
 
 ### ◬ Thom, Kai Cheng. 2019. _I Hope We Choose Love: A Trans Girl's Notes from the End of the World._ Arsenal Pulp Press.
 
+### ◬ TransFighters Oakland. 2021. _A Self Defense Study Guide for Trans Women and Gender Non-Conforming / Nonbinary AMAB Folks_ Silver Sprocket [https://www.silversprocket.net/2021/09/13/a-self-defense-study-guide-for-trans-women-and-gender-non-conforming-nonbinary-amab-folks/](https://www.silversprocket.net/2021/09/13/a-self-defense-study-guide-for-trans-women-and-gender-non-conforming-nonbinary-amab-folks/)
+
 ## List of Feminist Reading
 Here is my list of feminist readings that help to develop a strong foundation for transfeminist analysis.
 

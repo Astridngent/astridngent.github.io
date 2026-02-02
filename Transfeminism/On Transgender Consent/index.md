@@ -1,7 +1,5 @@
 ## On Transgender Consent
 
-
-
 I’m 17, just about to turn 18, and I am sitting in a segregated clinic for treating transgender youths in Denmark. This segregated clinic still exists, and was also the clinic that treated paedophiles by chemically castrating them. This meant that I was sitting across from a poster that said “Are you a paedophile? If so, consider castration.” The entire department, the sexological clinic, stands as a grim monument of the effects that 19th century sexology and rigid moral logic has on modern transgender medical care. I sat there, thinking about how much of a sick depraved monster I was just for wanting tits.
 
 This experience is a common experience for everyone who has come into contact with the sexological clinic seeking care for their gender dysphoria. Many of my friends have similar stories to mine, a child gets brought into a segregated clinic, made to feel like a pervert for being trans, and finally we are forced to prostrate ourselves in front of them for a modicum of respect and human decency.
