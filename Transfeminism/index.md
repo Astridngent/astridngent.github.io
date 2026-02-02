@@ -1,5 +1,8 @@
 Here I have collated my different transfemminist writings that I have put together in the hopes of having a single repository that I can just point people to whenever they want to read something I have written on the subject. 
 
+### ◬ [List of Transfeminist Sources](List of Transfeminist Sources)
+A list of readings that I believe help develop a strong foundations for transfeminist analysis.
+
 ### ◬ [An Argument Against Stealth](An Argument Against Stealth)
 Within this post I argue about the merits of not going complete stealth, and how community is fostered when you don't try to hide your transness. 
 
