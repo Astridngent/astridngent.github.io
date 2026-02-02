@@ -1,3 +1,5 @@
+## Kitchen Confidential
+
 Kitchen Confidential is a book that strikes to the soul of what it means to live within a subculture that exists upon the periphery of societal acceptability. Kitchens and those who work within it are one of these subcultures that exist skirting the edges of decent society, bartenders, bike messengers, criminals and activists are also groups who exist within these side-lined fringes of humanity. There are of course many more people who sit within these extant wings of our civilisation, but I'd rather not list every single categorisation of people as this is supposed to be a review of the book and how it affected me.
 
 And to say it affected me would be putting it lightly. If you knew anything about me you would know that I am one of those people who despite hopping, skipping, and jumping between different ways of living my life I always find myself sitting at the edge of society. The ways the tumultuous and chaotic lifestyles of those of us who live on the edges of decent society are described within the book are in many ways holding a mirror to myself and the way I lived my life, both the glorious highs and the devastating lows. 
