@@ -3,7 +3,7 @@
 
 and welcome to my little corner of the internet!! Here I have hella stuff such as my crafting projects, transfemminist writings, artistic works, and fictional writings. Feel free to poke around on this website and see what you can find, also feel free to check out my [bluesky](https://bsky.app/profile/astringent.darkwo.ke) where I post like an insane gremlin. If you're feeling generous you can also throw me a tip on my [ko-fi](<https://ko-fi.com/astringentastrid>).
 
-## ◬ [Fiction](Fiction)
+## ◬ [Creative Writings](Fiction)
 
 ## ◬ [Transfeminism](Transfeminism)
 
