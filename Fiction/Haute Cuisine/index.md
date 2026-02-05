@@ -67,7 +67,7 @@ Bring the water and dandelions up to a boil in a large pot before letting steep 
 ### Chebureki
 To know that this recipe is one you liked enough to make for others brings me so much joy and love that I cannot easily put into words. You have been such a kind friend that I have come to cherish immensely, and knowing that you have taken a part of me with you and incorporated it into your love for others has inspired me to incorporate more from those I love into my life. You are an inspiration and I am so glad to have you around me.
 
-- For the Dough
+For the Dough
 - four hundred grams of flour
 - six grams of salt
 - two hundred millilitres of water
