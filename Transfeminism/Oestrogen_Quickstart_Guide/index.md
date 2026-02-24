@@ -63,7 +63,7 @@ You can calculate estimated doses using the [HRT dosage calculator estrannai.se]
 ### Injecting SubQ
 ◬ Find an injection site
 
-》Either on your belly below your belly button and above your pubic region that is 1-3 finger lengths to one side or the other, alternating side for every injectio
+》Either on your belly below your belly button and above your pubic region that is 1-3 finger lengths to one side or the other, alternating side for every injection
 
 》Or on your thigh, you can find the rough area to do your injection by standing up and forming ad "L" shape with your hands, the rectangle formed by the "L" is where you want to do your injection, alternate which leg you inject into
 
