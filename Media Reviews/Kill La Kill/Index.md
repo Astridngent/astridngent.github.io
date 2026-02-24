@@ -4,4 +4,4 @@ In a truly wonderful breakout series, published on the tightest budget known to 
 
 The animation is also incredibly well done, making use of an incredibly stylistic art style to squeeze the most out of their incredibly limited budget. This stylisation and artistic direction leads to an incredibly visually striking work that stands out and catches the eye. This art direction is coupled with the occasional incredibly technically astounding piece of animation that stands out as some of the most impressive things I have seen to date. 
 
-All in all Kill La kill is a show that is worth pushing through that uncomfortable reaction you get to sexualisation to experience the art and storytelling that are incredibly compelling.
+All in all Kill La kill is a show that is worth pushing through that uncomfortable reaction you get to sexualisation to experience the art and storytelling that are incredibly compelling, and I highly recommend it
