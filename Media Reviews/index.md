@@ -10,6 +10,7 @@ Do you want to hear my opinion on nooks? Movies? TV shows? That magazine I read 
 
 ## TV
 ### ◬ [Farscape](Farscape)
+### ◬ [Kill La Kill](Kill La Kill)
 
 ## Music
 ### ◬ [King and Queen of the Losers](KAQOTL)

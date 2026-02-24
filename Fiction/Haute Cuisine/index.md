@@ -134,3 +134,5 @@ You are such a pain to cook for, all the things I use to make food so incredibly
 - Olive oil
 
 Begin by slicing the courgettes into thin slices and frying them off in a large deep skillet with olive oil. Once all your courgettes are fried throw in some whole cloves of garlic and move them around until the oil is aromatized and the garlic is golden, pull the garlic out once it's done. Turn down the heat and pour in your passata, add back the courgette and let simmer until the tomato sweetens. Add in the salt, cracked black pepper, and fresh basil leaves. Serve over gluten free pasta.
+
+### 
