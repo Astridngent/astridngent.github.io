@@ -6,8 +6,9 @@ and welcome to my little corner of the internet!! Here I have hella stuff such a
 # Latest Updates
 
 ## ◬ [This Is Going To Fucking Suck](https://blog.astringent.online/Fiction/This%20Is%20Going%20To%20Fucking%20Suck/)
+Two monologues that I performed one after the other, they are about heartbreak.
 
-## ◬ [List of Transfeminist Sources](https://blog.astringent.online/Transfeminism/A%20List%20of%20Transfeminist%20Sources/)
+## ◬ [Kill La Kill Review](https://blog.astringent.online/Media%20Reviews/Kill_La_Kill/)
 
 # Navigation
 ## ◬ [Creative Writings](Fiction)
