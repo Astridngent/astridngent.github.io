@@ -7,16 +7,16 @@ and welcome to my little corner of the internet!! Here I have hella stuff such a
 
 ## ◬ [This Is Going To Fucking Suck](https://blog.astringent.online/Fiction/This%20Is%20Going%20To%20Fucking%20Suck/)
 Two monologues that I performed one after the other, they are about heartbreak.
-# Navigation
-## ◬ [Creative Writings](Fiction)
+## Navigation
+### ◬ [Creative Writings](Fiction)
 All my Fiction and Non-Fiction creative writings.
-## ◬ [Transfeminism](Transfeminism)
+### ◬ [Transfeminism](Transfeminism)
 A collection of essays, papers, and blogs I've written on transfeminism
-## ◬ [Visual Work](Visual Work)
+### ◬ [Visual Work](Visual Work)
 Pictures, Drawings, Etc.
-## ◬ [Astrid Talks About Media](Media Reviews)
+### ◬ [Astrid Talks About Media](Media Reviews)
 Media reviews and recommendations.
-## ◬ [Food and Drink Recommendations](Food and Drink Recommendations)
+### ◬ [Food and Drink Recommendations](Food and Drink Recommendations)
 Places I like to eat and drink.
 ## Other good things
 Please go check out these links, they're all great!
