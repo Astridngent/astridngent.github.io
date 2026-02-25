@@ -5,17 +5,17 @@ This guide is an incredibly paired down version of [PGHRT](https://pghrt.diy/) a
 ## What you need:
 ◬ Vial of oestrogen
 
-	》I strongly recommend EEN(oestradiol ethanoate) as it has the most even hormone levels.
+- I strongly recommend EEN(oestradiol ethanoate) as it has the most even hormone levels.
 
-	》You can also go for EC(Oestradiol Cyprioate) EV
+- You can also go for EC(Oestradiol Cyprioate) EV
 
-	》There is also EV(Oestradiol Valerate), though this is the one I least recommend because it has the highest difference between peak and trough, and can lead to mood swings.
+- There is also EV(Oestradiol Valerate), though this is the one I least recommend because it has the highest difference between peak and trough, and can lead to mood swings.
 
 ◬ Needles
 
-	》For SubQ I recommend BD Micro-Fine 29G 0.5ml, 30G is fine too
+- For SubQ I recommend BD Micro-Fine 29G 0.5ml, 30G is fine too
 
-	》For IM I recommend KD-Ject III Syringes 1ml with 0.01 graduation and KD-fine Needles @ 25G(Injecting) and 23G(drawing)
+- For IM I recommend KD-Ject III Syringes 1ml with 0.01 graduation and KD-fine Needles @ 25G(Injecting) and 23G(drawing)
 
 ◬ Alcohol wipes for disinfecting
 
