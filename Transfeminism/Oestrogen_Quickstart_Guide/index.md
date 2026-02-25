@@ -1,19 +1,21 @@
 # Oestrogen Quickstart Guide
-This guide is an incredibly paired down version of [PGHRT](https://pghrt.diy/), alongside some of my own opinions. It is designed to be a guide for you to quickly start taking feminizing hormone replacement therapy via injections, it is not a replacement for [PGHRT](https://pghrt.diy), you should still read it when you have the time. **I am not a doctor, this is not medical advice.**
+This guide is an incredibly paired down version of [PGHRT](https://pghrt.diy/) alongside some of my own opinions. It is designed to be a guide for you to quickly start taking feminizing hormone replacement therapy via injections, it is not a replacement for [PGHRT](https://pghrt.diy), you should still read it when you have the time. **I am not a doctor, make your own decisions based off the information I give you.**
+## Why Should I do DIY?
+[My good friend Polly wrote an excellent piece in defence of DIY HRT.](https://blog.polly.computer/a_defense_of_diy_hrt/ ), but to be brief, DIY HRT gives us the tools to take control of our own bodies in spite of institutions that are declined to prevent us from transitioning at every possible opportunity.
 ## What you need:
 ◬ Vial of oestrogen
 
-》I recommend EEN(oestradiol ethanoate) 
+	》I strongly recommend EEN(oestradiol ethanoate) as it has the most even hormone levels.
 
-》You can also go for EC(Oestradiol Cypriote) EV
+	》You can also go for EC(Oestradiol Cyprioate) EV
 
-》There is also EV(Oestradiol Valerate), though this is the one I least recommend because it has the highest difference between peak and trough, and can lead to mood swings.
+	》There is also EV(Oestradiol Valerate), though this is the one I least recommend because it has the highest difference between peak and trough, and can lead to mood swings.
 
 ◬ Needles
 
-》For SubQ I recommend BD Micro-Fine 29G 0.5ml, 30G is fine too
+	》For SubQ I recommend BD Micro-Fine 29G 0.5ml, 30G is fine too
 
-》For IM I recommend KD-Ject III Syringes 1ml with 0.01 graduation and KD-fine Needles @ 25G(Injecting) and 23G(drawing)
+	》For IM I recommend KD-Ject III Syringes 1ml with 0.01 graduation and KD-fine Needles @ 25G(Injecting) and 23G(drawing)
 
 ◬ Alcohol wipes for disinfecting
 
@@ -21,7 +23,7 @@ This guide is an incredibly paired down version of [PGHRT](https://pghrt.diy/), 
 
 ◬ Plasters/Band-Aids (optional)
 ### Sourcing:
-For legal reasons I can't link you directly to where to source oestrogen. But I believe in you, you can find it yourself. Everything listed here is availible online.
+You can find hormone vials online, as well as all the other resources mentioned in the above shopping list. I can't give you the specifics of exactly where you should buy your needles as it varies from country to country. As for the sourcing of vials you can look at [https://diyhrt.info/](https://diyhrt.info/ "https://diyhrt.info/") and [https://diyhrt.market/](https://diyhrt.market/) to find where you want to source your vials. You will ned to use crypto, I recommend Monaro, but other coins are good enough.
 ### Proper Vial Storage:
 Don't Store your vial exposed to direct sunlight, and keep it within a range of 5-25°C (40-75°F) to avoid degradation of the oestrogen. It is also important that you disinfect the stopper of an open vial before putting it into storage.
 ### Dosage:
@@ -63,9 +65,9 @@ You can calculate estimated doses using the [HRT dosage calculator estrannai.se]
 ### Injecting SubQ
 ◬ Find an injection site
 
-》Either on your belly below your belly button and above your pubic region that is 1-3 finger lengths to one side or the other, alternating side for every injection
+	》Either on your belly below your belly button and above your pubic region that is 1-3 finger lengths to one side or the other, alternating side for every injection
 
-》Or on your thigh, you can find the rough area to do your injection by standing up and forming ad "L" shape with your hands, the rectangle formed by the "L" is where you want to do your injection, alternate which leg you inject into
+	》Or on your thigh, you can find the rough area to do your injection by standing up and forming ad "L" shape with your hands, the rectangle formed by the "L" is where you want to do your injection, alternate which leg you inject into
 
 ◬ Pinch the area you want to inject 
 
@@ -115,13 +117,13 @@ You can calculate estimated doses using the [HRT dosage calculator estrannai.se]
 
 ◬ Pull the skin of the injection area tight
 
-》This will create what is known as a "Z-lock", preventing medicine from exiting the injection site
+	》This will create what is known as a "Z-lock", preventing medicine from exiting the injection site
 
 ◬ In a single smooth motion, insert your needle into the injection site at a 90° angle, and push until it is roughly an inch into your muscle
 
 ◬ "Express" the injection by drawing ever so slightly on the plunger
 
-》If blood enters the syringe remove needle and start the entire injection over again and dispose of this dose
+	》If blood enters the syringe remove needle and start the entire injection over again and dispose of this dose
 
 ◬ Press down on the plunger and hold the needle in place for 5 seconds
 
