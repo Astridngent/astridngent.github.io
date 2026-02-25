@@ -65,9 +65,9 @@ You can calculate estimated doses using the [HRT dosage calculator estrannai.se]
 ### Injecting SubQ
 ◬ Find an injection site
 
-	》Either on your belly below your belly button and above your pubic region that is 1-3 finger lengths to one side or the other, alternating side for every injection
+- Either on your belly below your belly button and above your pubic region that is 1-3 finger lengths to one side or the other, alternating side for every injection
 
-	》Or on your thigh, you can find the rough area to do your injection by standing up and forming ad "L" shape with your hands, the rectangle formed by the "L" is where you want to do your injection, alternate which leg you inject into
+- Or on your thigh, you can find the rough area to do your injection by standing up and forming ad "L" shape with your hands, the rectangle formed by the "L" is where you want to do your injection, alternate which leg you inject into
 
 ◬ Pinch the area you want to inject 
 
@@ -113,17 +113,17 @@ You can calculate estimated doses using the [HRT dosage calculator estrannai.se]
 ### Injecting IM
 ◬ FInd an injection site
 
-》For IM your injection site is going to be on your thigh, you can find the rough area to do your injection by standing up and forming ad "L" shape with your hands, the rectangle formed by the "L" is where you want to do your injection, alternate which leg you inject into
+- For IM your injection site is going to be on your thigh, you can find the rough area to do your injection by standing up and forming ad "L" shape with your hands, the rectangle formed by the "L" is where you want to do your injection, alternate which leg you inject into
 
 ◬ Pull the skin of the injection area tight
 
-	》This will create what is known as a "Z-lock", preventing medicine from exiting the injection site
+- This will create what is known as a "Z-lock", preventing medicine from exiting the injection site
 
 ◬ In a single smooth motion, insert your needle into the injection site at a 90° angle, and push until it is roughly an inch into your muscle
 
 ◬ "Express" the injection by drawing ever so slightly on the plunger
 
-	》If blood enters the syringe remove needle and start the entire injection over again and dispose of this dose
+- If blood enters the syringe remove needle and start the entire injection over again and dispose of this dose
 
 ◬ Press down on the plunger and hold the needle in place for 5 seconds
 
