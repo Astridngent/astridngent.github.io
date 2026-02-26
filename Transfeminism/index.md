@@ -1,7 +1,7 @@
 Here I have collated my different transfeminist writings that I have put together in the hopes of having a single repository that I can just point people to whenever they want to read something I have written on the subject. 
 
 ### ◬ [Oestrogen Quickstart Guide](Oestrogen_Quickstart_Guide)
-This guide is a quickstart guide designed to get you the bare minimum you need to know for HRT injections. Sourcing not included.
+This guide is a quickstart guide designed to get you the bare minimum you need to know for HRT injections. 
 ### ◬ [A List of Transfeminist Sources](A List of Transfeminist Sources)
 A list of readings that I believe help develop a strong foundations for transfeminist analysis.
 ### ◬ [An Argument Against Stealth](An Argument Against Stealth)
