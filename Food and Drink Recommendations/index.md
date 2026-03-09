@@ -4,7 +4,6 @@ Listen, I know it's a lot to also start a food recommendation page on here, but 
 
 ## Bath, UK
 ### ◬ [Chai Walla](Chai Walla)
-
 ## Copenhagen, Denmark
 ### ◬ [Dexter's](Dexter's)
 
@@ -21,18 +20,16 @@ Listen, I know it's a lot to also start a food recommendation page on here, but 
 ### ◬ [The Pond](The Pond)
 
 ### ◬ [Alice](Alice)
-
 ## Hamilton, Ontario
 ### ◬ [Shehnai](Shehnai)
-
 ## London, UK
 ### ◬ [Love Shack](Love Shack)
 
 ### ◬ [E Pellici's](E Pellici's)
 
+### ◬ [The Absinthe Parlour at The Last Tuesday Society](Absinthe_Wynd)
 ## Manchester, UK
 ### ◬ [Hinterland](Hinterland)
-
 ## Napoli, Italy
 ### ◬ ['A Figlia d''o Marenaro]('A Figlia d''o Marenaro)
 
