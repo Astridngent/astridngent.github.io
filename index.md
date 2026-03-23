@@ -2,8 +2,8 @@
 Feel free to poke around on this website and see what you can find, also feel free to check out my [bluesky](https://bsky.app/profile/astringent.darkwo.ke) where I post like an insane gremlin. If you're feeling generous you can also throw me a tip on my [ko-fi](<https://ko-fi.com/astringentastrid>).
 
 # Latest Updates:
-## ◬ [This Is Going To Fucking Suck](https://blog.astringent.online/Fiction/This%20Is%20Going%20To%20Fucking%20Suck/)
-Two monologues that I performed one after the other, they are about heartbreak.
+## ◬[To You Who Came Before](To You Who Came Before)
+A series of sonnets dedicated to all the women who walked the path I now walk.
 ## ◬ [Oestrogen Quickstart Guide](https://blog.astringent.online/Transfeminism/Oestrogen_Quickstart_Guide/)
 This guide is a quickstart guide designed to get you the bare minimum you need to know for HRT injections. Sourcing not included.
 ## Navigation

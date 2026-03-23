@@ -135,4 +135,28 @@ You are such a pain to cook for, all the things I use to make food so incredibly
 
 Begin by slicing the courgettes into thin slices and frying them off in a large deep skillet with olive oil. Once all your courgettes are fried throw in some whole cloves of garlic and move them around until the oil is aromatized and the garlic is golden, pull the garlic out once it's done. Turn down the heat and pour in your passata, add back the courgette and let simmer until the tomato sweetens. Add in the salt, cracked black pepper, and fresh basil leaves. Serve over gluten free pasta.
 
-### 
+### A Chocolate Birthday Cake
+You have no idea how much this moment means to me, has always been a miserable experience, isolated and alone, and it was incredibly tough last year for a myriad of reasons. Burgeoning bipolar disorder, escaping abuse, and a psychosis so severe it lands me in the psych ward. You have shown me a kindness that is admirable, and I am so grateful for it, thank you for letting me into your life. I'll love you until the end of the earth for this, thank you for making me feel human again.
+
+For the Cake
+- 2 cups flour
+- 2 cups sugar
+- 1/4 teaspoon salt
+- 4 heaping tablespoons cocoa 
+- 2 sticks butter
+- 1 cup boiling water 
+- 1/2 cup buttermilk
+- 2 whole beaten eggs
+- 1 teaspoon baking soda
+- 1 teaspoon vanilla
+
+For the Glaze
+- 1 3/4 stick butter
+- 4 heaping tablespoons cocoa
+- 6 tablespoons milk 
+- 1 teaspoon vanilla
+- 1 pound (minus 1/2 cup) powdered sugar
+
+Begin my sifting together the dry ingredients for the cake. Then in a saucepan melt your butter and bloom into it the cocoa powder. Then add your boiling water and mix for thirty seconds before taking off the heat and incorporating the dry mixture. Once fully incorporated you can mix in the rest of the ingredients. Pour into a baking tins and bake for 20 minutes at gas mark 4. Let cool slightly before decorating.
+
+To make the glaze, melt you butter and stir in your cocoa powder, take off the heat and fully mix the other ingredients together, then pour over your cake.
