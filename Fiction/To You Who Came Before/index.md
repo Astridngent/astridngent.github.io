@@ -1,3 +1,4 @@
+# To You Who Came Before
 ### I
 though I stand surrounded<br>by love and by kindness<br>I find myself dislodged<br>from your histories
 
@@ -21,10 +22,8 @@ I would not be here if not for those<br>who fought for my chance to prose
 ### III
 how do I even begin, to write about you<br>to write a story, in search of a truth and reconciliation<br>one that moves hearts to and fro<br>and gives us the moment of recognition
 
-
 in honour of those whose lives have been lost<br>taken from us before their time<br>to know they were never given their moment<br>it breaks this jaded heart of mine
 
 in honour of you, who gave yourselves<br>away, in hope of a better future<br>for me, and those of us who find ourselves<br>pushing the world for more than a suture
-
 
 I hold in my heart a deep and everlasting love<br>that contorts me into an unholy beast, liberation's dove
