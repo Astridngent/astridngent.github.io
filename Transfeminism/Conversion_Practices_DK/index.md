@@ -105,9 +105,9 @@ Here are the sources used in this essay; I do not have the energy to formulate t
 [^15]:  Abigail Thorne, *Ibid.*
 
 Sources not directly quoted, but read for this article:
-https://en.wikipedia.org/wiki/Conversion_therapy
-https://lgbt.dk/wp-content/uploads/2024/05/Politisk-program-2024_Digital.pdf
-https://www.information.dk/debat/2024/02/borgerlige-partier-foerer-usaglig-kampagne-koensskiftebehandling-boern
-https://www.gov.uk/government/publications/conversion-therapy-an-evidence-assessment-and-qualitative-study/conversion-therapy-an-evidence-assessment-and-qualitative-study
-https://www.femina.dk/agenda/den-sidste-behandler-spurgte-om-jeg-ikke-kunne-taenke-mig-have-sex-som-en-kvinde-foer-jeg
-[killjoy.dk](killjoy.dk)
+- https://en.wikipedia.org/wiki/Conversion_therapy
+- https://lgbt.dk/wp-content/uploads/2024/05/Politisk-program-2024_Digital.pdf
+- https://www.information.dk/debat/2024/02/borgerlige-partier-foerer-usaglig-kampagne-koensskiftebehandling-boern
+- https://www.gov.uk/government/publications/conversion-therapy-an-evidence-assessment-and-qualitative-study/conversion-therapy-an-evidence-assessment-and-qualitative-study
+- https://www.femina.dk/agenda/den-sidste-behandler-spurgte-om-jeg-ikke-kunne-taenke-mig-have-sex-som-en-kvinde-foer-jeg
+- [killjoy.dk](killjoy.dk)
