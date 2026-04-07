@@ -2,6 +2,9 @@
 Feel free to poke around on this website and see what you can find, also feel free to check out my [bluesky](https://bsky.app/profile/astringent.darkwo.ke) where I post like an insane gremlin. If you're feeling generous you can also throw me a tip on my [ko-fi](<https://ko-fi.com/astringentastrid>).
 
 # Latest Updates:
+
+### ◬ [Conversion Practices in Denmark](Conversion_Practices_DK)
+A brief autoethnographic exploration of how trans healthcare in Denmark constitutes conversion practices, in my opinion.
 ## ◬[To You Who Came Before](https://blog.astringent.online/Fiction/To%20You%20Who%20Came%20Before/)
 A series of sonnets dedicated to all the women who walked the path I now walk.
 ## ◬ [Oestrogen Quickstart Guide](https://blog.astringent.online/Transfeminism/Oestrogen_Quickstart_Guide/)

@@ -1,5 +1,7 @@
 Here I have collated my different transfeminist writings that I have put together in the hopes of having a single repository that I can just point people to whenever they want to read something I have written on the subject. 
 
+### ◬ [Conversion Practices in Denmark](Conversion_Practices_DK)
+A brief autoethnographic exploration of how trans healthcare in Denmark constitutes conversion practices, in my opinion.
 ### ◬ [Oestrogen Quickstart Guide](Oestrogen_Quickstart_Guide)
 This guide is a quickstart guide designed to get you the bare minimum you need to know for HRT injections. 
 ### ◬ [A List of Transfeminist Sources](A List of Transfeminist Sources)
