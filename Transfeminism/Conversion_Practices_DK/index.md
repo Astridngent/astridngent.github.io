@@ -13,11 +13,11 @@ I am going to be utilising the terminology that Abigail Thorn does in her video 
 
 Thorne's documentary on conversion therapy cites the *Memorandum of understanding on conversion therapy in the UK*, the citation is as follows:
 
-"For the purposes of this document ’conversion therapy’ is an umbrella term for a therapeutic approach, or any model or individual viewpoint that demonstrates an assumption that any sexual orientation or gender identity is inherently preferable to any other, and which attempts to bring about a change of sexual orientation or gender identity, or seeks to suppress an individual’s expression of sexual orientation or gender identity on that basis."[^4]
+> For the purposes of this document ’conversion therapy’ is an umbrella term for a therapeutic approach, or any model or individual viewpoint that demonstrates an assumption that any sexual orientation or gender identity is inherently preferable to any other, and which attempts to bring about a change of sexual orientation or gender identity, or seeks to suppress an individual’s expression of sexual orientation or gender identity on that basis."[^4]
 
 Here we see that conversion therapy is very concisely surmised as the therapeutic approach that seeks to supress an individual's sexual orientation or gender identity. This aligns with what other organisations such as the Human Rights Commission.
 
-"So-called “conversion therapy,” sometimes known as “reparative therapy,” is a range of dangerous and discredited practices that falsely claim to change a person’s sexual orientation or gender identity or expression. " [^5]
+> So-called “conversion therapy,” sometimes known as “reparative therapy,” is a range of dangerous and discredited practices that falsely claim to change a person’s sexual orientation or gender identity or expression. " [^5]
 
 Here we again see that the point of conversion practices are described as an attempt to supress gender identity and sexual identity. I will therefore be describing conversion practices as such. 
 
@@ -25,7 +25,7 @@ Of note however is the usage of the word "assumption" in the Memorandum of under
 
 Finally, there is the fact that conversion practices are built upon incredibly harmful practices, with Patrick Corrigan from Amnesty International UK describing it as such;
 
-“So-called conversion ‘therapy’ can constitute torture or cruel, inhuman and degrading treatment..."[^6]
+> So-called conversion ‘therapy’ can constitute torture or cruel, inhuman and degrading treatment..."[^6]
 
 It is important to keep this in mind when discussing conversion practices, as it allows us to examine the outcomes and effects of the treatment that trans individuals experience in relation to gender services. This means we have to take into consideration the experiences of the individual who is subject to the treatment at these institutions. Do *they* consider the treatment they experience to be cruel, inhuman, or degrading
 ## Sexologisk Klinik
@@ -69,7 +69,7 @@ This low dose treatment can lead to incredibly negative effects for the individu
 
 **ADDENDUM:** After writing this section I was given a second-hand quote surrounding what one of the surgeons in Denmark who performs gender affirming surgeries said at a medical conference. The quote I received is as follows: 
 
-Der var til en medicisnk lægemøde en af de kiruger i Danmark der sagde at hun valge med vilje at ikke forbinde nerverne efter kirugien, da de vil få for meget nydelse ud af det *(There was at a medical conference one of the surgeons who perform gender reassignment surgeries in Denmark, she said that she deliberately doesn't connect the nerve endings after vaginoplasty as it would mean they get too much pleasure out of it)* 
+> Der var til en medicisnk lægemøde en af de kiruger i Danmark der sagde at hun valge med vilje at ikke forbinde nerverne efter kirugien, da de vil få for meget nydelse ud af det *(There was at a medical conference one of the surgeons who perform gender reassignment surgeries in Denmark, she said that she deliberately doesn't connect the nerve endings after vaginoplasty as it would mean they get too much pleasure out of it)* 
 
 I cannot confirm the voracity of this claim at the moment, but I have reached out to the person who told me this and I am attempting to verify the truth of this statement. If it comes out that this statement is in fact factual it would imply that the low quality of care is at worst maliciously informed, or at best based on incredibly biased assumptions as to why trans people transition. Either way this quote (which is still as of yet unverified) could magnify the severity of just how bad the quality of care in Denmark is, and in turn magnify the severity of the conversion practices at play.
 ## The Purpose of The Machine; Institutional Conversion Practices.
