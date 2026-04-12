@@ -8,3 +8,8 @@ Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor i
 
 <span style= "color:rgb(200,0,0)">  </span>
 [LINK](Fiction)
+
+
+
+### ◬ [Other Non-Fiction](Non-Fiction)
+My non-transfeminist non-fiction writings.

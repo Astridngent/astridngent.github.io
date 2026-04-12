@@ -25,4 +25,4 @@ A suffocating silence sweeps into the world around me, the audience isn’t sayi
 
 
 
-_This is version 2 of Punch Your Friends and Loved Ones, here's [Version 1](Version 1)_
+_This is version 2 of Punch Your Friends and Loved Ones, here's [Version1](Version1)_

@@ -1,6 +1,6 @@
 ## Punch Your Friends and Loved Ones OLD
 
-_This is the old version of Punch Your Friends and Loved Ones, a new version with better pacing and overall writing is available [here](https://astridngent.github.io/Fiction/Punch%20Your%20Friends%20and%20Loved%20Ones/)_
+_This is the old version of Punch Your Friends and Loved Ones, a new version with better pacing and overall writing is available [here](https://astridngent.github.io/Creative/Punch%20Your%20Friends%20and%20Loved%20Ones/)_
 
 I can do whatever I want in the beginning, just don’t knock my opponent out until the signal where, then I let him hit me in the dome and I take a dive, then I’ll have the money to pay back the debts I put myself into to get this body of mine. I grab my wraps from the table and begin securing my hands in their soft cotton embrace. Breathing in through my nose I steel my nerves against the imminent onslaught of noise and pain I am going to have to experience. One last check in the mirror to make sure my braids are tight and he won’t get a grip on them.
 
