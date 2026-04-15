@@ -10,7 +10,7 @@ A series of sonnets dedicated to all the women who walked the path I now walk.
 ## ◬ [Oestrogen Quickstart Guide](https://blog.astringent.online/Transfeminism/Oestrogen_Quickstart_Guide/)
 This guide is a quickstart guide designed to get you the bare minimum you need to know for HRT injections. Sourcing not included.
 ## Navigation
-### ◬ [Creative Writings](Fiction)
+### ◬ [Creative Writings](Creative)
 All my Fiction and Non-Fiction creative writings.
 ### ◬ [Transfeminism](Transfeminism)
 A collection of essays, papers, and blogs I've written on transfeminism.
